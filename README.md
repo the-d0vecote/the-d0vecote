@@ -23,4 +23,6 @@
      <br> <sub> this is not to say that grian is strongly source connected in any way nor is hy hys source! </sub>
      <br>
      <br> our Discord is .the.b1rdhouse. please ask before adding! tumblr is theb1rdhouse
+     <br>
 <img width="400" height="209" alt="tumblr_5b2bf62d8567508564ec182e272e47e4_1385ec5a_400" src="https://github.com/user-attachments/assets/7bba79d2-65cf-41d5-8c51-e2a7ba101f83" />
+</div>
