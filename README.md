@@ -13,16 +13,16 @@
      <br>
         ﹙ . . ⋯✧⋯ . . ﹚
      <br>
-     <br> cuddles, hugs, hiding (behind), boops, etc all welcome unless name says otherwise. chats and whispers also open, again unless name says otherwise! friends may cover and kiss
-<br> we're usaly on MCYT hill, though we can occasionally be found elsehwere. we also hang out on party island sometimes!
-        <br> we get forefully kicked every 15 minutes when afk or if we go offtab for too long when on mobile. my apologies
+     <br> cuddles, hugs, hiding (behind), boops, etc all welcome unless name says otherwise or we are alreaddy sitting with someone. chats and whispers also open, again unless name says otherwise! friends may cover and kiss
+<br> we're usaly on MCYT hill, though we can occasionally be found elsehwere, such as the docs. we also hang out on party island sometimes!
+        <br> we get forefully kicked every 15 minutes when afk or if we go offtab for too long when on mobile. our apologies
         <br> our ponies are usaly linked to our discord, or this github.
      <br>
      <br> tonetags or tone clarification is appreciated ✧ minor, -13 and 24+ thin ice when interacting
-     <br> we are a osdd collective. our host is a subsystem containing a kov and yhs grian(s), if knowing this makes you uncomfortable feel free to dni.
-     <br> <sub> this is not to say that grian is strongly source connected in any way nor is hy hys source! </sub>
+     <br> we are a osdd collective. our host is a subsystem containing [a] kov and yhs grian[s], if knowing this makes you uncomfortable feel free to dni.
+     <br> <sub> this is not to say that Grian is strongly source connected in any way nor is hy hys source! </sub>
      <br>
-     <br> our Discord is .the.b1rdhouse. please ask before adding! tumblr is theb1rdhouse
+     <br> our Discord is .the.b1rdhouse. please ask before adding! tumblr is theb1rdhouse, follow freely.
      <br>
 <img width="400" height="209" alt="tumblr_5b2bf62d8567508564ec182e272e47e4_1385ec5a_400" src="https://github.com/user-attachments/assets/7bba79d2-65cf-41d5-8c51-e2a7ba101f83" />
 </div>
