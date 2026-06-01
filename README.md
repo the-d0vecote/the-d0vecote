@@ -20,7 +20,7 @@
      <br>
      <br> tonetags or tone clarification is appreciated ✧ minor, -13 and 22+ thin ice when interacting
      <br> we hide/block ponies freely. if a pony's chat is clogging our screen in an annoying way we will often hide them.
-     <br> <sub> no dni, but again we block freely. </sub>
+     <br> <sub> overall boundareis - https://dovecotebounds.straw.page </sub>
      <br>
      <br> our Discord is .the.b1rdhouse. please ask before adding! tumblr is theb1rdhouse, follow freely.
      <br>
