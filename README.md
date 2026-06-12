@@ -16,7 +16,6 @@
      <br> chats and whispers open unless our name has some form of dni. if our name has c*h feel free to do so, otherwise only friends. do not cover or kiss us unless you're a close friend or we state its fine.
 <br> we're usaly on MCYT hill, though we can occasionally be found elsehwere, such as the docs. we also hang out on party island sometimes
         <br> we get forcefully kicked every 15 minutes when afk or if we go offtab for too long when on mobile. our apologies
-        <br> our ponies are usaly linked to our discord, or this github.
      <br>
      <br> tonetags or tone clarification is appreciated ✧ minor, -13 and 22+ thin ice when interacting
      <br> we hide/block ponies freely. if a pony's chat is clogging our screen in an annoying way we will often hide them.
