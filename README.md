@@ -19,9 +19,8 @@
      <br>
      <br> tonetags or tone clarification is appreciated ✧ minor, -13 and 22+ thin ice when interacting
      <br> we hide/block ponies freely. if a pony's chat is clogging our screen in an annoying way we will often hide them.
-     <br> <sub> overall boundareis - https://dovecotebounds.straw.page </sub>
      <br>
-     <br> our Discord is .the.b1rdhouse. please ask before adding! tumblrs are theb1rdhouse (reblog account) and the-d0vecote (posting account), follow freely.
+     <br> our Discord is .the.b1rdhouse. please ask before adding! tumblrs are theb1rdhouse (reblog account) and grians-d0vecote (posting account that we haven't actually used yet...), follow freely.
      <br>
 <img width="400" height="209" alt="tumblr_5b2bf62d8567508564ec182e272e47e4_1385ec5a_400" src="https://github.com/user-attachments/assets/7bba79d2-65cf-41d5-8c51-e2a7ba101f83" />
 </div>
