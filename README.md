@@ -6,7 +6,7 @@
         ﹙ . . ⋯✧⋯ . . ﹚
 <br> 
         <br>  names ; Grian, Osian, etc. the name of whatever pony we're using also works fine.
-        <br> hy /hymn /iy /feather , etc ✧ masc or nonhuman terms 
+        <br> hy /hymn /emyn /feather , etc ✧ masc or nonhuman terms 
      <br> nonhuman ✧ autism, c-ptsd, osdd, chronic pain, pots
         <br> <sub> . .  prn.cc for an extended list of names/pronouns + titles . . strawpage being remade . . </sub>
      <br>
